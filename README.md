@@ -1,0 +1,1 @@
+# patrykmikiciuk.pl
